@@ -1,5 +1,5 @@
 # 💫 About Me:
-🐱‍💻I'm a geek, but I also love nature. <br>🎮Deep at heart, I'm a gamer. <br>☕Enjoy a tech discussion with coffee. <br>🕸️My expertise is web development<br>🤙Contact me: https://t.me/iss_yone
+🐱‍💻I'm a geek, but I also love nature. <br>🎮Deep at heart, I'm a gamer. <br>☕Enjoy a tech discussion with coffee. <br>🕸️My expertise is web development<br>🤙Contact me: <br> Phone: 0775182186
 
 
 ## 🌐 Socials:
